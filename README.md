@@ -1,8 +1,9 @@
 ## About Me
+Hello!👋
 
-A poor student studying in a poor university in Hunan Province, China.
+Here is a poor student studying in a poor university in Hunan Province, China.
 
-Also a poor student who loves the legendary creature ***Dragon*** and enjoy creating things.
+Also a poor student who enjoys creating things.😉
 
 I may not be where success is commonly defined, but I keep moving forward  — ***Direction in mind, Progress in motion, Presence in life, Prosperity in time.***
 
